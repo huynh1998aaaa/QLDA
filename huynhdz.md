@@ -1,3 +1,3 @@
-﻿Cụ Huỳnh Vĩ Đại
-có cái đầu b th hoang ý đmm
+#Cụ Huỳnh Vĩ Đại
+*Hoàng ngu như bò*
 # HUỲNH ĐẠI TƯỚNG
